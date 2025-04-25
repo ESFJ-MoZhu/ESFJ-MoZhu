@@ -98,6 +98,9 @@ Contact?
 * PhotoShop 小白经验
 * Premiere 小白经验
 
-![default (1).jpeg](http://101.201.246.16:8080/i/2025/02/13/67ad754367094.jpeg)  
 
-![default.jpeg](http://101.201.246.16:8080/i/2025/02/13/67ad753eca43b.jpeg)
+[![pEo6cB6.jpg](https://s21.ax1x.com/2025/04/25/pEo6cB6.jpg)](https://imgse.com/i/pEo6cB6)
+
+[![pEo66nx.jpg](https://s21.ax1x.com/2025/04/25/pEo66nx.jpg)](https://imgse.com/i/pEo66nx)
+
+[![pEoyj61.jpg](https://s21.ax1x.com/2025/04/25/pEoyj61.jpg)](https://imgse.com/i/pEoyj61)
