@@ -105,4 +105,3 @@ Contact?
 
 [![pEo66nx.jpg](https://s21.ax1x.com/2025/04/25/pEo66nx.jpg)](https://imgse.com/i/pEo66nx)
 
-[![pEoyj61.jpg](https://s21.ax1x.com/2025/04/25/pEoyj61.jpg)](https://imgse.com/i/pEoyj61)
