@@ -84,16 +84,11 @@ Contact?
 * 女神异闻录5  JOKER
 * Counter-Strike  出逃的萨利
 
-#### 飞行
+#### 模拟飞行
 
 * DCS World 新兵 - 200h左右
-* Microsoft Flight Simulator 新兵 - 10h 左右
+* Microsoft Flight Simulator  - 10h 左右
 
-#### 各种武器
-
-* 枪械，哪个男生不喜欢呢
-
-* 弓箭，反曲弓复合弓一定经验QQ 1363140208
 
 #### 做一些视频
 
@@ -101,7 +96,4 @@ Contact?
 * Premiere 小白经验
 
 
-[![pEo6cB6.jpg](https://s21.ax1x.com/2025/04/25/pEo6cB6.jpg)](https://imgse.com/i/pEo6cB6)
-
-[![pEo66nx.jpg](https://s21.ax1x.com/2025/04/25/pEo66nx.jpg)](https://imgse.com/i/pEo66nx)
 
