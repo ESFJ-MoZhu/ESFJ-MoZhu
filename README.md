@@ -15,7 +15,7 @@ You can find me at
 
 Contact?
 
-* Email - mozhubamboowww@outlook.com
+* Email - mozhubambooqwq@gmail.com
 
 ### 目前的研究兴趣
 
