@@ -11,6 +11,7 @@ You can find me at
 * Github - https://github.com/ESFJ-MoZhu
 * Bilibili  - https://b23.tv/lcHAvok
 * 知乎  - https://www.zhihu.com/people/67-92-2-39
+* 小红书 - https://www.xiaohongshu.com/user/profile/65a3a3a40000000004017768
 * Steam - https://steamcommunity.com/id/esfjmozhu/
 
 Contact?
