@@ -38,8 +38,7 @@ Contact?
 
 * Web常见漏洞
 * Java，PHP，Python代码审计
-* 掌握: c++,Python,SQL,Java,PHP
-* Linux使用，操作系统安装
+* Linux使用，操作系统安装，网络环境运维
 
 ### 关于我的兴趣爱好
 
