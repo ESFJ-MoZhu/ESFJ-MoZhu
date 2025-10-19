@@ -84,6 +84,7 @@ Contact?
 * 原神 神里凌人
 * 女神异闻录5  JOKER
 * Counter-Strike  出逃的萨利
+* 黑神话悟空 - 天命人
 
 #### 模拟飞行
 
