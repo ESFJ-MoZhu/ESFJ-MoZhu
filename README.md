@@ -1,7 +1,7 @@
 
 ## 欢迎造访~
 
-I m 墨竹,山东大学HashTeam战队Web成员，NepNep联合战队成员。目前在华为公司实习(已离职)
+I m 墨竹,山东大学HashTeam战队Web成员，NepNep联合战队成员。~目前在华为公司实习(已离职)~
 
 欢迎造访我的个人博客 https://mozhubamboo.com
 
