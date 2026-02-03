@@ -1,7 +1,7 @@
 
 ## 欢迎造访~
 
-I m 墨竹
+I m 墨竹，山东大学网络空间安全学院，HASHTEAM战队Web成员，NepNep联合战队成员，~目前在华为公司实习(已离职)~
 
 欢迎造访我的个人博客 https://mozhubamboo.com
 
@@ -44,10 +44,10 @@ Contact?
 * 空洞骑士-丝之歌
 * Minecraft
 * Dead By Daylight - 黎明杀机 - 200h+
+* Grand Theft Auto V (GTA5) - 1000h时长左右
 
 -------------------------------------------------已经吃灰的了-------------------------------------------------
 
-* Grand Theft Auto V (GTA5) - 1000h时长左右
 * Tom Clancy's Rainbow Six Siege (彩虹六号) - 1000h时长左右
 * Dead Cells (死亡细胞) - 300h时长左右
 * Hollow Knight (空洞骑士) - 200h时长左右
