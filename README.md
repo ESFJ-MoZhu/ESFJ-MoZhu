@@ -1,42 +1,6 @@
-## 欢迎造访~
 
-I m 墨竹,性格是ESFJ，毕业于山东大学山东大学，HashTeam战队22级Web成员，NepNep联合战队成员。现已正式工作
-
-
-欢迎造访我的个人博客 https://mozhubamboo.com
-
-You can find me at
-
-* 知乎  - https://www.zhihu.com/people/67-92-2-39
 * Steam - https://steamcommunity.com/id/esfjmozhu/
 
-Contact?
-
-* Email - mozhubambooqwq@gmail.com
-
-### 目前的研究兴趣
-
-* Web安全，代码审计
-* AI安全研究
-
-### 日后的计划
-* Reverse二进制程序逆向分析（未开工）
-* Pwn二进制程序漏洞 (未开工）
-* Crypto密码学(暂且了解了一点点RSA与AES)
-### 曾经待过的
-* 山石网科(实习)
-* 长亭科技(实习)
-* 华为南京研究所(实习)
-
-### 个人技能
-
-#### 计算机
-
-* Web常见漏洞
-* Java，PHP，Python代码审计
-* Linux使用，操作系统安装，网络环境运维
-
-### 关于我的兴趣爱好
 
 #### 游戏
 
